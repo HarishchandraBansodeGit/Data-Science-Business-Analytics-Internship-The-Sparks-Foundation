@@ -1,2 +1,2 @@
-# Data-Science-Business-Analytics-Internship-at-The-Sparks-Foundation
+# Data Science & Business Analytics Internship - The Sparks Foundation
 
